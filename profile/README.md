@@ -9,5 +9,5 @@
 
 
 ## Haze Studios
-#### Mission: Develop solutions for gamers to become their best.
+#### Mission: Develop solutions we wish existed in the world.
 
